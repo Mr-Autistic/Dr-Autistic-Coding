@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ Mr. Autistic
+- 👋 Hi, I’m @ Dr. Autistic
 - 👀 I’m interested in ...Gaming ,Content Creation, Apple Developer and Game Design,2A,3DP and AI
 - 🌱 I’m currently learning ...Encoding a New Game......
 - 💞️ I’m looking to collaborate on ...Streams,Discord Giveaways and Video and File Distribution
